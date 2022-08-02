@@ -1,0 +1,3 @@
+Hi teacher
+Домашка
+nope
